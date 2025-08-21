@@ -5,15 +5,20 @@
   
 </div>
 
+<p align="center">"  ㅤㅤyou  ㅤㅤwere  ㅤㅤa  ㅤㅤshitty  ㅤㅤgirlfriend  ㅤㅤ.  ㅤㅤ"</p>
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/d3903755-981c-4cf6-a928-a61cf524a77e"></p>
-
-<p align="center">♡ ❝ 𝐢𝐟  𝐲𝐨𝐮  𝐥𝐨𝐯𝐞  𝐦𝐞  ,  𝐤𝐞𝐞𝐩  𝐢𝐭  𝐭𝐨  𝐲𝐨𝐮𝐫𝐬𝐞𝐥𝐟  ❞ . .</p>
-
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/81dfe82b-5cff-4da3-a153-9086b1e0946d"></p>
 
 
 
 
+<p align="center">tara ㅤㅤcarpenter ㅤㅤfictkin ㅤㅤ+ㅤㅤdefender</p>
+<p align="center">mlp ㅤㅤ, ㅤㅤscream ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤpound ㅤㅤpuppies ㅤㅤfan</p>
+ㅤ
+
+
+<p align="center"><img width="200" src="https://github.com/user-attachments/assets/9f60696f-a115-45a0-ade9-d3ded6edb058"></p>
+ㅤ
 
 <div align="center">
 
