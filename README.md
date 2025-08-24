@@ -36,4 +36,4 @@
 <p align="center">list ㅤㅤof ㅤㅤcharacters ㅤㅤi ㅤㅤsee ㅤㅤmyself ㅤㅤas ㅤㅤ.</p>
 <p align="center">tara ㅤcarpenter ㅤ, ㅤmisty ㅤquigley ㅤ, ㅤjackie ㅤtaylor ㅤ, ㅤcairo ㅤsweet</p>
 <p align="center">enid ㅤsinclair ㅤ, ㅤfluttershy ㅤ, ㅤmoondancer ㅤ, ㅤbeth ㅤgreene</p>
-<p align="center">lydia ㅤ(twd) ㅤ, ㅤame-chan ㅤ, ㅤena ㅤshinonome ㅤ, ㅤtomoko ㅤkuroki</p>
+<p align="center">lydia ㅤ(twd) ㅤ, ㅤena ㅤshinonome ㅤ, ㅤtomoko ㅤkuroki</p>
