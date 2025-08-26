@@ -1,11 +1,16 @@
 
+
 <div align="center">
   
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=novatorem&show_offline=false&background_color=0a0c10&interchange=false&bar_color=564e4e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
   
 </div>
 
-<p align="center">"  ㅤㅤyou  ㅤㅤwere  ㅤㅤa  ㅤㅤshitty  ㅤㅤgirlfriend  ㅤㅤ.  ㅤㅤ"</p>
+<div align="center">
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=IM+Fell+English&size=23&pause=999&color=AEAEAE&width=435&lines=%E2%9D%9D%E3%85%A4you+%E3%85%A4were%E3%85%A4+a+%E3%85%A4shitty%E3%85%A4+girlfriend+%E3%85%A4%E2%9D%9E+)](https://git.io/typing-svg)
+
+</div>
 
 <p align="center"><img width="580" src="https://github.com/user-attachments/assets/81dfe82b-5cff-4da3-a153-9086b1e0946d"></p>
 
