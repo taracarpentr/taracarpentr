@@ -27,7 +27,7 @@
 
 <div align="center">
 
-[𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://puppytara.atabook.org/)
+[𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://pupfetti.atabook.org/)
 ┊	[𝐬𝐩𝐨𝐭𝐢𝐟𝐲](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs)
 ┊	[𝐭𝐰𝐢𝐭𝐭𝐞𝐫](https://twitter.com/softestfurr)
 
