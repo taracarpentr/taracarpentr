@@ -18,7 +18,7 @@
 
 
 <p align="center">tara ㅤㅤcarpenter ㅤㅤfictkin ㅤㅤ+ㅤㅤdefender</p>
-<p align="center">mlp ㅤㅤ, ㅤㅤscream ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤpound ㅤㅤpuppies ㅤㅤfan</p>
+<p align="center">mlp ㅤㅤ, ㅤㅤscream ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤthe ㅤㅤwalking ㅤㅤdead ㅤㅤfan</p>
 ㅤ
 
 
