@@ -27,7 +27,7 @@
 
 <div align="center">
 
-[𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://littlsaint.straw.page)
+[𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://taracarpentr.straw.page)
 ┊	[𝐭𝐢𝐤𝐭𝐨𝐤](https://www.tiktok.com/@bbydeers)
 ┊	[𝐭𝐰𝐢𝐭𝐭𝐞𝐫](https://twitter.com/softestfurr)
 
