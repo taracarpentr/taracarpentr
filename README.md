@@ -19,7 +19,7 @@
 
 <p align="center">that ㅤㅤone ㅤㅤoomf ㅤㅤwhoㅤㅤneverㅤㅤstopsㅤㅤtalkingㅤㅤaboutㅤㅤtamber</p>
 <p align="center">tara ㅤㅤcarpenter ㅤㅤfictkin ㅤㅤ+ㅤㅤdefender</p>
-<p align="center">mlp ㅤㅤ, ㅤㅤscream ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤthe ㅤㅤwalking ㅤㅤdead ㅤㅤfan</p>
+<p align="center">mlp ㅤㅤ, ㅤㅤscream ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤyellowjackets ㅤㅤfan</p>
 ㅤ
 
 
