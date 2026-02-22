@@ -1,4 +1,4 @@
-
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/5d33b465-7b7b-45a1-bb23-e23ea868a555"></p>
 
 <div align="center">
   
@@ -12,11 +12,11 @@
 
 </div>
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/f550f7f1-678d-4021-8aaa-255e37a17709"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/9eb60064-f191-47a3-b299-c468a43e39e8"></p>
 
 
 
-
+<p align="center">that ㅤㅤone ㅤㅤoomf ㅤㅤwhoㅤㅤneverㅤㅤstopsㅤㅤtalkingㅤㅤaboutㅤㅤtamber</p>
 <p align="center">tara ㅤㅤcarpenter ㅤㅤfictkin ㅤㅤ+ㅤㅤdefender</p>
 <p align="center">mlp ㅤㅤ, ㅤㅤscream ㅤㅤ,ㅤㅤwednesday ㅤㅤ, ㅤㅤthe ㅤㅤwalking ㅤㅤdead ㅤㅤfan</p>
 ㅤ
@@ -43,3 +43,5 @@
 <p align="center">enid ㅤsinclair ㅤ, ㅤfluttershy ㅤ, ㅤmoondancer ㅤ, ㅤbeth ㅤgreene</p>
 <p align="center">lydia ㅤ(twd) ㅤ, ㅤena ㅤshinonome ㅤ, ㅤtomoko ㅤkuroki</p>
 ㅤ
+
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/5d33b465-7b7b-45a1-bb23-e23ea868a555"></p>
