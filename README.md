@@ -12,7 +12,7 @@
 
 </div>
 
-<p align="center"><img width="580" src="https://github.com/user-attachments/assets/9eb60064-f191-47a3-b299-c468a43e39e8"></p>
+<p align="center"><img width="580" src="https://github.com/user-attachments/assets/f6235175-0fb8-42b6-b984-8d6f40023c70"></p>
 
 <p align="center">・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・</p>
 
